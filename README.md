@@ -1,7 +1,6 @@
 # About Me
 Experienced Pipeline Technical Director specialized in 3D Animation and VFX with 5 years leading teams, 3 years of experience as a CG Supervisor and more than 10 years as a CG Generalist.
 
-<br/>
 
 # Projects
 
